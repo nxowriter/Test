@@ -1,5 +1,4 @@
-# Test
-Test for future projects
-13+ Account
+# Only a test not the "real" owner. 
+13+
 Tiktoks reuploads
 Anime uploads
